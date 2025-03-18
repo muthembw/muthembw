@@ -8,7 +8,6 @@
 
 🌟 I enjoy crafting clean, efficient, and user-friendly solutions.
 
-📱 Get in touch with me via[https://www.instagram.com/b_masila.a?igsh=ZmMycGZ2YzJzeHMx]
 
 
 ## 🌐 Socials:
